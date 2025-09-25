@@ -87,7 +87,7 @@ This project is licensed under the MIT License - see the [LICENSE](LICENSE) file
 
 ## Contact
 
-For questions or collaboration opportunities, feel free to contact us at monishkumarpecai@gmail.com.
+For questions or collaboration opportunities, feel free to contact us at    https://anushayaramala.com .
 
 ---
 
